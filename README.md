@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @BayburtluPanda
+- 👀 I’m interested in Mechatronic Engineering
+- 🌱 I’m currently learning Mechatronic Engineering
+- 💞️ I’m not looking to collaborate on 
+- 📫 How to reach me "m.eminsakatr@gmail.com","..."
+- 😄 Pronouns: "Panda","Turkish","YoungTurkish","YoungPanda"
+- ⚡ Fun fact: "I have a hard time speaking English" and "I don't look at my gmail account much"
+-     Language: Turkish "Please use this language when communicating"
